@@ -1,1 +1,1 @@
-# learn_foreign_languages_with_ai
+# Learn Foreign Languages with AI
